@@ -1,4 +1,4 @@
   You really thought?
-  https://cdn.discordapp.com/attachments/1140720274086559777/1140734603523534889/image0.jpg
 
-  https://media.discordapp.net/attachments/1140457769875550208/1141386050711847054/midde.jpg
+  ![image](https://github.com/Oxya-Inject/Oxya-CW/assets/142179407/0239f57d-e97f-46a8-a469-0914011960dd)     ![image](https://github.com/Oxya-Inject/Oxya-CW/assets/142179407/3ff5e70c-2f45-4770-b09a-fcec7149baab)
+
